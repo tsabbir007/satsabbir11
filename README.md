@@ -1,6 +1,6 @@
 - 👋 Hi, I’m **SABBIR AHMED TALUKDAR**
 - 
-- 👀 I’m interested in **Competitive Programming** [Stopstalk Account](https://www.stopstalk.com/user/profile/satsabbir11)
+- 👀 I’m interested in [**Competitive Programming**](https://www.stopstalk.com/user/profile/satsabbir11)
 - 
 - 🌱 I’m currently learning **Wordpress Theme Development**
 - 
